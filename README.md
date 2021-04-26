@@ -1,1 +1,1 @@
-# https://rangga677.github.io/Rangga677.CSS1/
+# rangga677.github.io/Rangga677.CSS1/
